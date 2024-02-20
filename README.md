@@ -2,4 +2,4 @@
 - 👀 I’m interested in Gaming, Electronics, and a bit of Coding.
 - 📫 How to reach me: mail.hecticreeper@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: https://youtube.com/@HectiCreeper
+- ⚡ Fun fact - Subscribing is free: https://youtube.com/@HectiCreeper
